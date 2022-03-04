@@ -5,6 +5,7 @@ ___
  - High Consept: **[Sentient Carnivorous Fungus Being Seeking Vital Connection]**
  - Trouble: **[Untrusting And Compulsed To Spread Spores To Sentient Beings]**
  - **[The Best Defense is a good Offense]**
+
 ___
 ## Background
 My thought concept is like a Groot/Odo. My hope being this sentient fungal being was taken by empire for research not knowing his species are part of a hive mind (like the founders from ds9) while also having self identity. But all they know is that something is wrong with them because they don't know that needed connection and is very aggressive to the empire being the ones who have experimented on them.
