@@ -23,5 +23,6 @@ There was a pause as the Maestro's sensors ran over Iota, then a whipcrack of co
 Knowing only the truth would save him from further punishment, they answered, "I stole Farmer Dauphin-Lee's new Gorsh-Rikkonen 400c Comet Tractor, but Maestro he wasn't following the correct matienince cycles and-" 
 Iota cut off his explanation at a slashing motion of the Shelly's dendrites. "No, novice. You the stolen tractor is not the problem. The Farmer tells me it is working better than ever after you returned it. The problem is you failed to consider how your reckless actions would effect the machinery of society in the area, particularly the monastery's reputation. When our neighbors don't trust us our work is hindered, like sand in the geartrain. Bad enough the Imperial Exciseman are breathing down our cowls, and you decide now is a good time to pull this stunt."
 Shelly's body let's out a long weezing sigh, too long for a standard human. "One more rad, then you will be freed. I will set the door timer. Maybe this time will help you take the longer view, Novice."
+
 ___
 [Back](Players.md)
