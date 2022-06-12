@@ -7,6 +7,12 @@ ___
  - **[The Best Defense Is A Good Offense]**
  - **[Weary Trust]**
 
+## Skills
+**+4:**
+**+3:**, **+3:** 
+**+2:**, **+2:** , **+2:**
+**+1:**, **+1:** , **+1:** , **+1:**
+
 ___
 ## Background
 My thought concept is like a Groot/Odo. My hope being this sentient fungal being was taken by empire for research not knowing his species are part of a hive mind (like the founders from ds9) while also having self identity. But all they know is that something is wrong with them because they don't know that needed connection and is very aggressive to the empire being the ones who have experimented on them.
@@ -34,6 +40,11 @@ The creature slowly turned to face Clint who was talking to him. In doing so loo
 "Thank you for your concern Gentry. But I think that this 'Thing' is more than what it seems." Clint turns back to the being. "Do you have a name?"
 The creature gains some composure and seems to size up the man in front of him. and a very earthy gutteral sound exits the being.
 "I am Tode."
+
+### Adventure with [Rocky](./Rocky.md)
+Little activity had happened the past few days, no new bodies, no scuffles heard. Tode was relaxed in their hideout as no one wanted to be around the dead but they were able to digest as needed while also helping the natural decay to progress, able to let their guard down. Sadly they had become accustomed to a fresh corpse more often, the initial consumption leading to an addiction. 
+Something approaches now, disturbing some airborne spores. Tode alerts themself and hides ready to snatch the new corpse being deposited. This large silhouette is unfamiliar, foreign, but continues to approach the mass pile. What is it? A Threat? Come to take them away? Certainly, the body droppers never came so close before. Quickly Tode must strike for this is their only home, nowhere to run, last place to hide. Little thought went in as they whipped a tendrel toward the intruder.
+“NO Toooouuch!” roared the intruder as it slammed its appendages to the ground. Tode retracted its fungal tentacle and studied the being. Much different, not flesh, not fungal or organic but rock? Could this be another refugee like Tode? They lifted their hooded head up slightly and spoke softly “I am Tode.” A moment went by before the being responded “Rocky…. No touch, my precious.” the being pointed out their shell. They then seemed to let their own guard down before reaching out with their arm. “Tode, no human you want be friend? Human only hurt.” Tode thought for a moment analyzing this rockbeing before releasing more spores into the air. “I am Tode” they replied. Rocky seemed somewhat confused with the reply but came closer and sat next to Tode and began to explain his homeworld and what he was. Tode, not confident in how to communicate, began to illustrate to Rocky what they know of themselves using his tentacles with the dirt and mycelia on the ground. Seeming to come to some mild understanding of each other, Tode allowed Rocky to stay. Tode still struggled to branch concepts to explain through their odd illustrations.
 
 ___
 [Back](Players.md)

@@ -7,6 +7,12 @@ ___
  - Trouble: **[Obsessed With The Perfection Of Machines]**
  - **[Wreckless Repairs]**
 
+## Skills
+**+4:**
+**+3:**, **+3:** 
+**+2:**, **+2:** , **+2:**
+**+1:**, **+1:** , **+1:** , **+1:**
+
 ___
 ## Background
 i will explain no further
